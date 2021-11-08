@@ -13,7 +13,7 @@
 - Each tenant will maintain the cleanliness and neatness of the Common Area and share in the responsibility of cleaning the Common Area.
 
 ## Smoking/Vaping
-- Smoking and/or vaping is not permitted on the property. 
+- Smoking and/or vaping is not permitted on the property without prior written approval from the landlord.
 
 ## Amenities
 - Water, Power, Sewer and trash service are included unless the tenant is unreasonable or careless with consumption of such resources.
